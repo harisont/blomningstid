@@ -1,56 +1,56 @@
 ---
-title: Blomningstid
+title: Fioritura
 author: Karin Boye
+translator: Arianna Masciolini
 ---
 
-Liksom för att riktigt tillgodogöra sig de sista minuterna av sitt besök i det trevligaste av alla vardagsrum kröp fru Ridell ihop ännu mer i sin stora öronlappsfåtölj framför den öppna spiseln, där man nyss hade stekt äpplen framför elden. 
-Hennes ögon vilade på de två, som satt ett litet stycke därifrån i lampans vita ljuskrets, modern med sin stickning, dottern med sitt skissblock. Svårt att säga, vad som gjorde det stora, låga rummet så förtjusande. Kanske de många trevliga vrårna - kanske den kultiverade och personliga stilen över minsta småsak - kanske också den lugna och varma gladlynthet, som strömmade ut från de båda där vid sitt arbete.
+Come a voler godersi al massimo gli ultimi minuti della sua permanenza nel piú piacevole dei salotti, la signora Ridell si raggomitolò ancora di piú sulla grande poltrona davanti al camino, dove le mele avevano appena finito di arrostirsi sul fuoco. I suoi occhi si posarono sulle due donne, madre e figlia, sedute a poca distanza al chiarore della lampada, la prima con il suo lavoro a maglia, la seconda con il blocco da disegno. Cosa rendesse così piacevole la stanza, ampia e bassa, era difficile a dirsi. Forse i tanti angoletti così gradevoli - forse lo stile curato e personale di ogni minimo dettaglio - forse anche la calma, calda serenità che emanava dalle due, intente al loro lavoro.
 
-\- Kära Lisen, mumlade hon sömnigt ur sin öronlappsfåtölj, jag har det så bra, så jag vill rakt inte ut i regnet och blötan. Jag vill stanna här hos er. Ni är världens lyckligaste familj, vet ni det?
+\- Lisen cara, mormorò assonnata dalla sua poltrona, si sta così bene che non ho nessuna voglia di uscirmene alla pioggia e al freddo. Voglio restare qui con voi. Siete la famiglia più felice del mondo, lo sapete?
 
-\- Kanske det, sade fru Lisen och log över sin stickning. Peppar peppar, för resten. Man kanske inte skulle ha det så bra. Man förtjänar det inte.
+\- Può darsi, disse la signora Lisen sorridendo al suo lavoro a maglia. Tocchiamo ferro, peraltro. Forse non dovremmo passarcela così bene. Non ce lo meritiamo.
 
-\- Vad du pratar, mamma! sade Annika förebrående och såg upp från skissblocket. Vem förtjänar det så bra som du! Du som är det raraste som finns!
+\- Ma che dici, mamma! disse Annika in tono di rimprovero alzando gli occhi dall'album da disegno. Chi se lo merita se non tu, che sei la persona piú buona che ci sia!
 
-\- Hu! sade fru Ridell och kikade ut från sitt gömsle. Hör ni vad det blåser och regnar! Och nu ska jag ut!
+\- Uff! fece la signora Ridell facendo capolino dal suo cantuccio. Sentite che vento che tira, e come piove! Ed io che devo uscire giusto adesso!
 
-Just nu drev en by mot fönstret, det smattrade och skvalade. Utanför stod kvällen sen och mörk, och glesa lyktor lyste upp villastadens bottenlösa vägar. Alla ryste till vid ljudet av regnet mot rutan - och rysningen ökade ytterligare deras känsla av värme och trevnad. Liksom pelargonerna innanför de översköljda rutorna var man ljuvligt skyddad och fredad för allt ont.
+Proprio in quel momento una folata di vento colpì la finestra, che sbatté rumorosamente. Fuori era calata l'oscurità della sera e poche lanterne illuminavano le strade senza fondo del villaggio. Tutte rabbrividirono al suono della pioggia sul vetro, e quel brivido accrebbe ulteriormente la sensazione di tepore e di benessere che provavano. Come i gerani al di qua dei vetri inondati erano al riparo, protette da ogni male.
 
-Från övre våningen hördes ett lätt knarrande. Fru Ridell lyssnade: det var steg, som gick fram och åter, fram och åter. Det måste vara den yngsta dottern, Kerstin, som strax efter teet dragit sig tillbaka till sitt rum.
+Dal piano di sopra giunse un leggero scricchiolio. La signora Ridell ascoltava: erano passi che facevano avanti e indietro, avanti e indietro. Doveva essere la figlia minore, Kerstin, che si era ritirata nella sua stanza subito dopo il tè.
 
-\- Vad hon är orolig där uppe! sade fru Ridell.
+\- Com'è inquieta, lá sopra! disse la signora Ridell.
 
-\- Ja - det är hon verkligen, sade Lisen Dunker efter en kort tystnad. Kerstin är en orolig ande. Det är kanske ungdomen - det går väl över.
+\- Sì - lo è davvero, disse Lisen Dunker dopo una breve pausa. Kerstin é uno spirito tormentato. Forse la giovinezza - passerà.
 
-\- Ja men mamma - aldrig har jag varit sån? invände Annika. Och du vill väl inte påstå, att jag inte har varit lika ung som Kerstin?
+\- Ma mamma - sono mai stata così, io? obiettò Annika. Non vorrai venirmi a dire che non sono stata anch'io giovane come Kerstin?
 
-Fru Dunkers enda svar var först ett leende, sedan, då leendet hade dött bort, en suck. Fru Ridell reste sig.
+La sola risposta della signora Dunkers fu dapprima un sorriso, poi, quando il sorriso si spense, un sospiro. La signora Ridell si alzò.
 
-\- Ni får hälsa Georg så mycket! sade hon. Stackare, att hans sammanträde ska dra ut så på tiden.
+\- Salutatemi tanto Georg! disse. Pover'uomo, la sua visita sta andando per le lunghe.
 
-I samma ögonblick ljöd stampande på förstukvisten och skrapande på torkmattan utanför. Strax därpå hördes nyckeln i låset, och Georg Dunker steg in, regnvåt och glad. I de grå ögonbrynen satt stora droppar och glittrade i skenet från lampan, och hans ansikte, upphettat av den piskande blåsten, lyste upp, då den varma tryggheten här inne slog emot honom. Han flängde av sig de våta ytterkläderna och steg in som till fest. Fru Ridell kunde inbillat sig, att det var hennes närvaro, som gjorde kvällen så glad. Det gjorde hon nu inte, för hon kände familjen - men överflödig kände man sig aldrig här, och ingenstams var det så lätt att vara som hemma. En stund till måste hon stanna och dela Lisens och Annikas glädje över att ha husfadern där igen.
+Nello stesso preciso istante risuonarono dei passi al primo piano e uno strusciare sullo zerbino all'esterno. Poco dopo si uní la chiave nella serratura ed entrò Georg Dunker, zuppo di pioggia e contento. Grosse gocce di pioggia intrappolate nelle sue sopracciglia grigie scintillavano alla luce della lampada ed il suo volto, arrossito dal vento sferzante, s'illuminò non appena il piacevole tepore dell'interno lo raggiunse. Si sfilò il soprabito bagnato ed entrò come si entra ad una festa. La signora Ridell avrebbe potuto pensare che fosse la sua presenza a rendere la serata così allegra. Non lo fece, conoscendo la famiglia - ma di troppo, qui, non ci si sentiva mai e in nessun altro luogo era così facile sentirsi a casa. Doveva pur restare ancora un po' e condividere la gioia che Lisens ed Annika provavano nel veder tornare a casa marito e padre.
 
-En kort stund senare knarrade trappan under lätta långsamma steg. Bland ytterkläderna i den mörka tamburen rotade någon som tydligen ville göra så lite väsen av sig som möjligt. Just för att denna någon var så tyst och försiktig, lystrade hela familjen, och Georg Dunker ropade:
+Poco dopo, la scala scricchiolò di lenti passi leggeri. Qualcuno, cercando evidentemente di fare il meno rumore possibile, stava frugando tra i cappotti nell'ingresso buio. Proprio perché quel qualcuno era così silenzioso e attento, l'intera famiglia si mise in ascolto, e Georg Dunker chiese:
 
-\- Ska du gå ut, Kerstin?
+\- Stai uscendo, Kerstin?
 
-\- Ja, jag tänkte gå ut och gå ett slag, svarade en kylig och liksom avlägsen flickröst.
+\- Sì, pensavo di fare due passi fuori, rispose una fredda, quasi scostante voce di fanciulla.
 
-Ingen hade något att invända, men man såg på varandra. Från den stillsamma och osynliga familjemedlemmen i tamburen tycktes en kall fläkt nå dem. "En ängel går genom rummet", tänkte fru Ridell, men måste genast själv göra den invändningen, att om detta var en ängel, så var änglar ganska beklämmande väsen.
+Nessuno ebbe nulla da opporre, ma ci fu uno scambio di sguardi. Parve che dall'ingresso, dove la ragazza se ne stava silenziosa ed invisibile, li avesse raggiunti un colpo di vento freddo. "Un angelo attraversa la stanza", pensò la signora Ridell, ma subito dovette ribattere a sé stessa che, se quello era un angelo, gli angeli erano creature alquanto inquietanti.
 
-Då Kerstin kom hem igen, hade Annika redan gått och lagt sig i deras gemensamma rum.
+Quando Kerstin tornò a casa, Annika si era giá coricata nella loro camera da letto.
 
-\- Du får gärna tända, jag har i alla fall inte somnat än, sade hon, då systern försökte klä av sig i mörkret. Kerstin tände. Hennes ansikte flammade rött efter promenaden i det vilda vädret.
+\- Accendi pure la candela, tanto non mi sono ancora addormentata, disse quest'ultima mentre la sorella cercava di spogliarsi al buio. Kerstin l'accese. Il suo viso era rosso fuoco dopo la passeggiata nel tempo inclemente.
 
-\- Vet du, det kan vara så skönt ibland att gå i regn och blåst, sade hon liksom urskuldande. Man blir en smula lugnare. Kanske man behöver någon att slåss med.
+\- Sai, certe volte é così bello camminare nella pioggia e il vento, disse come scusandosi. Ci si calma un poco. Magari si ha bisogno di qualcuno con cui litigare.
 
-Annika låg och kisade mot ljuset.
+Annika, distesa, socchiuse gli occhi verso la luce.
 
-\- Sover du bättre nu om nätterna? frågade hon lågt.
+\- Dormi meglio la notte, adesso? chiese piano.
 
-Kerstin skakade på huvudet.
+Kerstin scosse la testa.
 
-\- Men säg inget åt mamma, bad hon. Det oroar henne bara.
+\- Ma non dirlo alla mamma, le chiese. Si preoccupa e basta.
 
 Då mörker och tystnad åter sänkt sig över rummet, låg Annika en kort stund och funderade över familjens olycksbarn, skuggan över idyllen, nervknytet Kerstin - hon som tog allting så tungt och var överkänslig för livets smärtsamma sidor. Men bara en kort stund, sedan somnade hon.
 
