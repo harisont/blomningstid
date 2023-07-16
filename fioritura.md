@@ -76,7 +76,7 @@ Ma il suo respiro ansimante e i suoi movimenti concitati parlavano un'altra ling
 
 \- Ascolta, mammina, noi non possiamo farci niente! Possiamo solo aver pazienza e vedere cosa succede! Adesso entra e siediti un momento!
 
-Fru Dunker såg upp i sin yngsta dotters hårda blå ögon med tacksamhet och kanske också en liten smula skam. Hon kände, hur hon i djupet av sitt hjärta inte begärde bättre än att som ett litet barn få överlämna sig åt dessa fasta händer och denna fasta röst ... Men hon var inte barn, hon var mor och måste ordna och bestämma. Hon skulle följa med Georg till sjukhuset, och hon var alldeles färdig, så när som på en sak, som hon hade glömt och inte kunde komma på. Kerstin upplyste henne om att det var hatten.
+Fru Dunker såg upp i sin yngsta dotters hårda blå ögon med tacksamhet och kanske också en liten smula skam. Hon kände, hur hon i djupet av sitt hjärta inte begärde bättre än att som ett litet barn få överlämna sig åt dessa fasta händer och denna fasta röst... Men hon var inte barn, hon var mor och måste ordna och bestämma. Hon skulle följa med Georg till sjukhuset, och hon var alldeles färdig, så när som på en sak, som hon hade glömt och inte kunde komma på. Kerstin upplyste henne om att det var hatten.
 
 Uppe på sitt rum satt Annika förstenad och såg efter den bortrullande ambulansen. Hon vände sig inte om, då hon hörde Kerstin komma in.
 
@@ -189,7 +189,7 @@ väntade på den dagliga rapporten från sjukhuset.
 
 \- De - de säger, att han är utom all fara nu, sade hon tonlöst.
 
-\- Mamma! skrek Annika till med fasa i rösten. De hade aldrig talat om saken, hon och Annika. Ännu mindre hade läkaren sagt något åt det hållet. Men båda hade tydligen ändå haft klart för sig, att hjärnhinneinflammation brukade sluta med döden - eller sinnessjukdom. Fru Dunker hade dagar och nätter igenom hållit en förfärlig tanke på avstånd, en som trängde sig på men som inte fick tänkas till slut: "Vilket skulle du helst vilja ...?"
+\- Mamma! skrek Annika till med fasa i rösten. De hade aldrig talat om saken, hon och Annika. Ännu mindre hade läkaren sagt något åt det hållet. Men båda hade tydligen ändå haft klart för sig, att hjärnhinneinflammation brukade sluta med döden - eller sinnessjukdom. Fru Dunker hade dagar och nätter igenom hållit en förfärlig tanke på avstånd, en som trängde sig på men som inte fick tänkas till slut: "Vilket skulle du helst vilja...?"
 
 Då Annika skrek till, hade Lisen Dunker riktat sina ögon mot Kerstin, i en vild förhoppning att åtminstone inte hon skulle förstå det hotfulla glädjebudskapet. Men Kerstins min sade, att också hon visste. Ett snabbt, dödligt allvar gick som ett ryck över hennes unga ansikte och var borta igen. Ingen sade något, och tystnaden i det soliga rummet var tryckande, själva moraklockans ticktack var fullt av skrämsel, där den mätte den korta fristen mellan dem och framtiden.
 
@@ -201,7 +201,7 @@ Det första som sades kom från Kerstin, med hennes lugna jämna röst:
 
 Första gången de besökte honom, var det hon och Kerstin som reste in. Annika vågade inte. Ute i korridoren grep fru Dunker sin dotter i armen och sade med kvävd röst:
 
-\- Gå in först, Kerstin. Jag kan inte. Jag vet ju inte ...
+\- Gå in först, Kerstin. Jag kan inte. Jag vet ju inte...
 
 Dotterns långa smärta gestalt dök in genom sjukrumsdörren, medan Lisen Dunker sjönk ner på en bänk, utan en tanke i sin hjärna, utan att se och utan att höra. Men bara en kort stund efteråt stod Kerstin åter bredvid henne, strålande över hela ansiktet, fastän tårarna strömmade över kinderna.
 
