@@ -52,29 +52,29 @@ Kerstin scosse la testa.
 
 \- Ma non dirlo alla mamma, le chiese. Si preoccupa e basta.
 
-Då mörker och tystnad åter sänkt sig över rummet, låg Annika en kort stund och funderade över familjens olycksbarn, skuggan över idyllen, nervknytet Kerstin - hon som tog allting så tungt och var överkänslig för livets smärtsamma sidor. Men bara en kort stund, sedan somnade hon.
+Nella stanza calarono do nuovo il silenzio e l'oscurità. Annika, distesa, rifletté per un momento su quella sorella fonte di tante preoccupazioni, l'ombra sul loro idillio, la nervosa Krestin, che prendeva tutto cosí sul serio, ipersensibile a tutti gli aspetti dolorosi dell'esistenza. Ma fu solo un momento e presto si addormentò.
 
-Det mörka halvåret öppnade sig som en svart tunnel, slök alla de resande och släppte åter fram dem i dagsljuset, när det började lida mot vårkanten. Annika var trött och så pass nere som hennes glada lynne tillät. Hon hade haft ledsamheter på Konstakademin för några intriganta kamraters skull.
+Il periodo piú buio dell'anno si aprì come una galleria scura, che inghiotte i viaggiatori per lasciarli uscire alla luce del giorno solo all'avvicinarsi della primavera. Annika era stanca ed abbattuta quanto la sua indole allegra le consentiva. All'Accademia di Belle Arti aveva sofferto a causa di alcuni compagni che la manipolavano.
 
-Då hon så kom hem en eftermiddag, mötte henne modern med blekt och ängsligt ansikte.
+Un pomeriggio, tornando a casa, trovò la madre pallida, un'espressione angosciata sul volto.
 
-\- Var lite tyst! bad hon dottern. Georg mådde så illa, han kom hem i dag mittunder arbetstiden ...
+\- Fai piano! raccomandò alla figlia. Georg si sentiva così male che oggi è tornato a casa nel bel mezzo dell'orario di lavoro...
 
-Annika besvarade hennes skrämda blick. Utan att någon hade nämnt dess namn, reste sig ett spöke mellan dem: i Stockholmstrakten hade på sista tiden förekommit flera fall av epidemisk hjärnhinneinflammation.
+Annika ricambiò il suo sguardo spaventato. Senza che nessuno ne pronunciasse il nome ad alta voce, lo spettro della meningite, di cui si erano registrati diversi casi nell'area di Stoccolma, fece il suo ingresso nella stanza.
 
-\- Har du skickat efter doktorn? frågade Annika. Samtidigt som hon såg modern nicka, tillade hon: Var är Kerstin?
+\- Hai fatto chiamare il medico? chiese Annika. Vedendo la madre annuire, aggiunse: Dov'è Kerstin?
 
-\- På föreläsning på högskolan. Jag vågar inte tänka på hur hon ...
+\- A lezione, all'università. Non oso pensare a come reagirà alla notizia...
 
-Doktorn kom och utlät sig mångtydigt. Han förordade, att den sjuke flyttades till sjukhuset med ambulans. Just som ambulansen höll på vägen, var också Kerstin framme vid grinden, stannade ett ögonblick och fortsatte långsamt uppför grusgången.
+Il medico arrivò, ma si espresse in modo ambiguo. Ad ogni modo, raccomandò che il paziente fosse trasferito in ospedale in ambulanza. Proprio mentre l'ambulanza era per strada, Kerstin arrivò al cancello, si fermò un attimo e proseguì lentamente lungo il sentiero di ghiaia.
 
-Fru Dunker kom emot henne redan på förstukvisten.
+La signora Dunker le venne incontro ancora sulla soglia.
 
-\- Far är sjuk! sade hon, och i sitt upprörda tillstånd omfamnade hon Kerstin, något som hon annars aldrig kom sig för med. Var inte rädd, var inte rädd, det är kanske inget farligt alls ...
+\- Tuo padre è malato! disse, e nella tensione del momento abbracciò Kerstin, cosa che altrimenti non le riusciva mai di fare. Non aver paura, non aver paura, magari non è niente di pericoloso...
 
-Men hennes flämtande andhämtning och feberaktiga rörelser talade ett annat språk. Då grep Kerstin med ett stadigt tag om hennes skälvande händer och sade med mycket lugn, mycket fast röst:
+Ma il suo respiro ansimante e i suoi movimenti concitati parlavano un'altra lingua. Allora Kerstin le strinse saldamente le mani tremanti e con voce molto calma, molto ferma le disse:
 
-\- Så, lilla mamma, det här kan vi inte göra något åt! Vi får väl tåla oss och se! Kom in nu och sätt dig ett slag!
+\- Ascolta, mammina, noi non possiamo farci niente! Possiamo solo aver pazienza e vedere cosa succede! Adesso entra e siediti un momento!
 
 Fru Dunker såg upp i sin yngsta dotters hårda blå ögon med tacksamhet och kanske också en liten smula skam. Hon kände, hur hon i djupet av sitt hjärta inte begärde bättre än att som ett litet barn få överlämna sig åt dessa fasta händer och denna fasta röst ... Men hon var inte barn, hon var mor och måste ordna och bestämma. Hon skulle följa med Georg till sjukhuset, och hon var alldeles färdig, så när som på en sak, som hon hade glömt och inte kunde komma på. Kerstin upplyste henne om att det var hatten.
 

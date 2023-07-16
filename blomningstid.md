@@ -58,19 +58,19 @@ Det mörka halvåret öppnade sig som en svart tunnel, slök alla de resande och
 
 Då hon så kom hem en eftermiddag, mötte henne modern med blekt och ängsligt ansikte.
 
-\- Var lite tyst! bad hon dottern. Georg mådde så illa, han kom hem i dag mittunder arbetstiden ...
+\- Var lite tyst! bad hon dottern. Georg mådde så illa, han kom hem i dag mittunder arbetstiden...
 
 Annika besvarade hennes skrämda blick. Utan att någon hade nämnt dess namn, reste sig ett spöke mellan dem: i Stockholmstrakten hade på sista tiden förekommit flera fall av epidemisk hjärnhinneinflammation.
 
 \- Har du skickat efter doktorn? frågade Annika. Samtidigt som hon såg modern nicka, tillade hon: Var är Kerstin?
 
-\- På föreläsning på högskolan. Jag vågar inte tänka på hur hon ...
+\- På föreläsning på högskolan. Jag vågar inte tänka på hur hon...
 
 Doktorn kom och utlät sig mångtydigt. Han förordade, att den sjuke flyttades till sjukhuset med ambulans. Just som ambulansen höll på vägen, var också Kerstin framme vid grinden, stannade ett ögonblick och fortsatte långsamt uppför grusgången.
 
 Fru Dunker kom emot henne redan på förstukvisten.
 
-\- Far är sjuk! sade hon, och i sitt upprörda tillstånd omfamnade hon Kerstin, något som hon annars aldrig kom sig för med. Var inte rädd, var inte rädd, det är kanske inget farligt alls ...
+\- Far är sjuk! sade hon, och i sitt upprörda tillstånd omfamnade hon Kerstin, något som hon annars aldrig kom sig för med. Var inte rädd, var inte rädd, det är kanske inget farligt alls...
 
 Men hennes flämtande andhämtning och feberaktiga rörelser talade ett annat språk. Då grep Kerstin med ett stadigt tag om hennes skälvande händer och sade med mycket lugn, mycket fast röst:
 
