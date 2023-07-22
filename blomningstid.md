@@ -58,25 +58,25 @@ Det mörka halvåret öppnade sig som en svart tunnel, slök alla de resande och
 
 Då hon så kom hem en eftermiddag, mötte henne modern med blekt och ängsligt ansikte.
 
-\- Var lite tyst! bad hon dottern. Georg mådde så illa, han kom hem i dag mittunder arbetstiden ...
+\- Var lite tyst! bad hon dottern. Georg mådde så illa, han kom hem i dag mittunder arbetstiden...
 
 Annika besvarade hennes skrämda blick. Utan att någon hade nämnt dess namn, reste sig ett spöke mellan dem: i Stockholmstrakten hade på sista tiden förekommit flera fall av epidemisk hjärnhinneinflammation.
 
 \- Har du skickat efter doktorn? frågade Annika. Samtidigt som hon såg modern nicka, tillade hon: Var är Kerstin?
 
-\- På föreläsning på högskolan. Jag vågar inte tänka på hur hon ...
+\- På föreläsning på högskolan. Jag vågar inte tänka på hur hon...
 
 Doktorn kom och utlät sig mångtydigt. Han förordade, att den sjuke flyttades till sjukhuset med ambulans. Just som ambulansen höll på vägen, var också Kerstin framme vid grinden, stannade ett ögonblick och fortsatte långsamt uppför grusgången.
 
 Fru Dunker kom emot henne redan på förstukvisten.
 
-\- Far är sjuk! sade hon, och i sitt upprörda tillstånd omfamnade hon Kerstin, något som hon annars aldrig kom sig för med. Var inte rädd, var inte rädd, det är kanske inget farligt alls ...
+\- Far är sjuk! sade hon, och i sitt upprörda tillstånd omfamnade hon Kerstin, något som hon annars aldrig kom sig för med. Var inte rädd, var inte rädd, det är kanske inget farligt alls...
 
 Men hennes flämtande andhämtning och feberaktiga rörelser talade ett annat språk. Då grep Kerstin med ett stadigt tag om hennes skälvande händer och sade med mycket lugn, mycket fast röst:
 
 \- Så, lilla mamma, det här kan vi inte göra något åt! Vi får väl tåla oss och se! Kom in nu och sätt dig ett slag!
 
-Fru Dunker såg upp i sin yngsta dotters hårda blå ögon med tacksamhet och kanske också en liten smula skam. Hon kände, hur hon i djupet av sitt hjärta inte begärde bättre än att som ett litet barn få överlämna sig åt dessa fasta händer och denna fasta röst ... Men hon var inte barn, hon var mor och måste ordna och bestämma. Hon skulle följa med Georg till sjukhuset, och hon var alldeles färdig, så när som på en sak, som hon hade glömt och inte kunde komma på. Kerstin upplyste henne om att det var hatten.
+Fru Dunker såg upp i sin yngsta dotters hårda blå ögon med tacksamhet och kanske också en liten smula skam. Hon kände, hur hon i djupet av sitt hjärta inte begärde bättre än att som ett litet barn få överlämna sig åt dessa fasta händer och denna fasta röst... Men hon var inte barn, hon var mor och måste ordna och bestämma. Hon skulle följa med Georg till sjukhuset, och hon var alldeles färdig, så när som på en sak, som hon hade glömt och inte kunde komma på. Kerstin upplyste henne om att det var hatten.
 
 Uppe på sitt rum satt Annika förstenad och såg efter den bortrullande ambulansen. Hon vände sig inte om, då hon hörde Kerstin komma in.
 
@@ -189,7 +189,7 @@ väntade på den dagliga rapporten från sjukhuset.
 
 \- De - de säger, att han är utom all fara nu, sade hon tonlöst.
 
-\- Mamma! skrek Annika till med fasa i rösten. De hade aldrig talat om saken, hon och Annika. Ännu mindre hade läkaren sagt något åt det hållet. Men båda hade tydligen ändå haft klart för sig, att hjärnhinneinflammation brukade sluta med döden - eller sinnessjukdom. Fru Dunker hade dagar och nätter igenom hållit en förfärlig tanke på avstånd, en som trängde sig på men som inte fick tänkas till slut: "Vilket skulle du helst vilja ...?"
+\- Mamma! skrek Annika till med fasa i rösten. De hade aldrig talat om saken, hon och Annika. Ännu mindre hade läkaren sagt något åt det hållet. Men båda hade tydligen ändå haft klart för sig, att hjärnhinneinflammation brukade sluta med döden - eller sinnessjukdom. Fru Dunker hade dagar och nätter igenom hållit en förfärlig tanke på avstånd, en som trängde sig på men som inte fick tänkas till slut: "Vilket skulle du helst vilja...?"
 
 Då Annika skrek till, hade Lisen Dunker riktat sina ögon mot Kerstin, i en vild förhoppning att åtminstone inte hon skulle förstå det hotfulla glädjebudskapet. Men Kerstins min sade, att också hon visste. Ett snabbt, dödligt allvar gick som ett ryck över hennes unga ansikte och var borta igen. Ingen sade något, och tystnaden i det soliga rummet var tryckande, själva moraklockans ticktack var fullt av skrämsel, där den mätte den korta fristen mellan dem och framtiden.
 
@@ -201,7 +201,7 @@ Det första som sades kom från Kerstin, med hennes lugna jämna röst:
 
 Första gången de besökte honom, var det hon och Kerstin som reste in. Annika vågade inte. Ute i korridoren grep fru Dunker sin dotter i armen och sade med kvävd röst:
 
-\- Gå in först, Kerstin. Jag kan inte. Jag vet ju inte ...
+\- Gå in först, Kerstin. Jag kan inte. Jag vet ju inte...
 
 Dotterns långa smärta gestalt dök in genom sjukrumsdörren, medan Lisen Dunker sjönk ner på en bänk, utan en tanke i sin hjärna, utan att se och utan att höra. Men bara en kort stund efteråt stod Kerstin åter bredvid henne, strålande över hela ansiktet, fastän tårarna strömmade över kinderna.
 
