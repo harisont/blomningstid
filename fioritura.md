@@ -50,7 +50,7 @@ Annika, distesa, socchiuse gli occhi verso la luce.
 
 Kerstin scosse la testa.
 
-\- Ma non dirlo alla mamma, le chiese. Si preoccupa e basta.
+\- Ma non dirlo alla mamma, la pregò. Si preoccupa e basta.
 
 Då mörker och tystnad åter sänkt sig över rummet, låg Annika en kort stund och funderade över familjens olycksbarn, skuggan över idyllen, nervknytet Kerstin - hon som tog allting så tungt och var överkänslig för livets smärtsamma sidor. Men bara en kort stund, sedan somnade hon.
 
