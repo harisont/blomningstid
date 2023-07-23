@@ -52,7 +52,7 @@ Kerstin scosse la testa.
 
 \- Ma non dirlo alla mamma, la pregò. Si preoccupa e basta.
 
-Nella stanza calarono do nuovo il silenzio e l'oscurità. Annika, distesa, rifletté per un momento su quella sorella fonte di tante preoccupazioni, l'ombra sul loro idillio, la nervosa Krestin, che prendeva tutto cosí sul serio, ipersensibile a tutti gli aspetti dolorosi dell'esistenza. Ma fu solo un momento e presto si addormentò.
+Nella stanza calarono do nuovo il silenzio e l'oscurità. Annika, distesa, rifletté per un momento su quella sorella fonte di tante preoccupazioni, l'ombra sul loro idillio, la nervosa Kerstin, che prendeva tutto cosí sul serio, ipersensibile a tutti gli aspetti dolorosi dell'esistenza. Ma fu solo un momento e presto si addormentò.
 
 Il periodo piú buio dell'anno si aprì come una galleria scura, che inghiotte i viaggiatori per lasciarli uscire alla luce del giorno solo all'avvicinarsi della primavera. Annika era stanca ed abbattuta quanto la sua indole allegra le consentiva. All'Accademia di Belle Arti aveva sofferto a causa di alcuni compagni che la manipolavano.
 
@@ -76,116 +76,55 @@ Ma il suo respiro ansimante e i suoi movimenti concitati parlavano un'altra ling
 
 \- Ascolta, mammina, noi non possiamo farci niente! Possiamo solo aver pazienza e vedere cosa succede! Adesso entra e siediti un momento!
 
-Fru Dunker såg upp i sin yngsta dotters hårda blå ögon med tacksamhet och kanske också en liten smula skam. Hon kände, hur hon i djupet av sitt hjärta inte begärde bättre än att som ett litet barn få överlämna sig åt dessa fasta händer och denna fasta röst... Men hon var inte barn, hon var mor och måste ordna och bestämma. Hon skulle följa med Georg till sjukhuset, och hon var alldeles färdig, så när som på en sak, som hon hade glömt och inte kunde komma på. Kerstin upplyste henne om att det var hatten.
+La signora Dunker guardò figlia minore nei severi occhi blu con un misto di gratitudine e leggera vergogna. Nel profondo del cuore sentiva di non desiderare altro che affidarsi a quelle mani salde e quella voce ferma, come una bambina piccola... Ma non era una bambina, era una madre, e le spettava organizzarsi e decidere. Avrebbe accompagnato Georg all'ospedale, ed era già pronta ad andare , tranne che per una cosa che aveva scordato e non riusciva a ricordarsi. Kerstin le fece notare che si trattave del cappello.
 
-Uppe på sitt rum satt Annika förstenad och såg efter den bortrullande ambulansen. Hon vände sig inte om, då hon hörde Kerstin komma in.
+Nella sua stanza al piano di sopra, Annika stava seduta, impietrita, a guardare l'ambulanza che si allontanava. Quando sentì Kerstin entrare, non si voltò.
 
-\- Vet du, att det är söndag i morgon? frågade Kerstin. Tilda vet
-ingenting, och mamma kom sig inte för med att ordna med något. Vi måste
-skynda oss, innan affärerna stänger.
+\- Ti ricordi che domani è domenica? domandò Kerstin. Tilda non sa niente, e mamma non è riuscita a predisporre nulla. Sbrighiamoci, prima che i negozi chiudano.
 
-\- Kan du tänka på middagsmat nu? frågade Annika dovt.
+\- Riesci a pensare al cibo in questo momento? chiese Annika stancamente.
 
-\- Jo du, det kan jag, och nu sätter du genast på dig hatt och kappa och
-följer med, för du har mer sakkunskap än jag på det området.
+\- Certo che sì, e adesso mettiti cappello e cappotto e vieni con me, tu che sei più esperta di queste cose.
 
-Likgiltigt lydde Annika. Under vägen tvangs hon i alla fall av systerns
-lugna saklighet att rycka upp sig, så att hon åtminstone svarade och
-iakttog vanlig behärskning. Det var ändå hon, som måste ta sig samman
-och beställa vad man skulle ha, för hon hade bättre än Kerstin reda på
-vad som gick åt i hushållet. Men bra skönt var det att ha Kerstins ögon
-över sig hela tiden.
+Con scarsa convinzione, Annika obbedì. Lungo il cammino, ad ogni modo, la calma fermezza della sorella la costrinse a darsi un contegno, se non altro in modo tale da reagire e comportarsi normalmente. Inevitabilmente, dal momento che sapeva meglio di Kerstin quali fossero le cose che mancavano in casa, toccava a lei ricomporsi e decidere cosa bisognava comperare. Tuttavia, avere lo sguardo di Kerstin puntato addosso durante tutto il processo l'aiutava.
 
-Modern kom hem sent på kvällen, och det blev
-inte mycket sagt, förrän man gick och lade sig. Annika hade svårt att
-somna. Äntligen måtte hon ändå ha slumrat till, för hon for upp ur en
-helt annan tillvaro och konstaterade, att Kerstin i tofflor och
-morgonrock gick tvärsöver golvet och bort till dörren, som hon öppnade
-på glänt.
+La madre tornò tardi la sera, e le tre non scambiarono che poche parole prima di coricarsi. Annika non riusciva a dormire. Ad un certo punto dovette finalmente essersi assopita, perché tutto ad un tratto fu riportata alla realtà da Kerstin, la quale, in vestaglia e pantofole, stava attraversando la stanza dirigendosi verso la porta, che aprì leggermente.
 
-\- Vad är det? frågade Annika yrvaken.
+\- Che succede? chiese Annika nel dormiveglia.
 
-\- Det lyser ur mammas nyckelhål, svarade systern. Hon ska sova. Får jag
-tända och ta fram mina tabletter?
+\- Mamma ha la luce accesa, si vede attraverso il buco della serratura, rispose la sorella. Ha bisogno di dormire. Ti dispiace se accendo e tiro fuori le mie pillole?
 
-Så fort det var gjort, släckte hon åter och smög sig ut, men stängde
-inte dörren riktigt efter sig. Annika satte sig upp och lyssnade till de
-båda rösterna, som nådde henne, utan att hon kunde urskilja orden - den
-ena jämrande och skrämd, den andra övertalande och lugnande, själv
-orubbligt lugn och blid. Slutligen tystnade rösterna, bara den jämrande
-höjde då och då några enstaka ljud. Då allt varit stilla en lång stund,
-kom Kerstin åter insmygande.
+Non appena lo ebbe fatto, spense la candela e uscì silenziosamente, ma non chiuse del tutto la porta dietro di sè. Annika si alzò a sedere ed ascoltò, senza riuscirne e a distinguere le parole, il suono delle due voci, l'una lamentosa e spaventata, l'altra suadente e rassicurante, che la raggiungeva appena. Infine le voci tacquero, solo la prima emetteva di tanto in tanto qualche gemito. Quando il silenzio calò del tutto, Kerstin tornò indietro in punta di piedi.
 
-\- Hon sover, sade hon. Behöver du kanske också en tablett?
+\- Dorme, disse. Non è che anche tu hai bisogno di una pillola?
 
-\- Det tror jag inte. Jag sover hur ledsen jag är.
+\- Non credo. Non importa quanto triste sia, riesco sempre ad addormentarmi.
 
-\- Det är bra, sade Kerstin gillande och kröp ner under täcket.
+\- Bene, disse Kerstin in tono di approvazione infilandosi sotto le coperte.
 
-Sedan det hemska budet hade kommit från sjukhuset, att det verkligen var
-hjärnhinneinflammation, följde dagar och veckor som en mardröm. Den
-sjuke fick inte ta emot besök, endast per telefon kunde man göra sig
-underrättad om hans tillstånd. Fru Lisen Dunker var aldrig riktigt
-närvarande i sitt hem, trots att hon ständigt vankade omkring överallt,
-i trappor och rum. Hon hade alltid haft svårt att komma ihåg saker och
-ting - nu glömde hon allt. - För karantänens skull stannade de båda
-flickorna hemma, och Tilda i köket lät buden sätta sina varor på långt
-avstånd utanför kökstrappan. Annika var borta liksom modern. Det var
-inte precis minnet som svek henne, men hon tycktes ha mist all
-företagsamhet. Då olyckan slår ner som en blixt över världens
-lyckligaste familj, kommer plötsligt allt att se så meningslöst ut.
-Kerstin ensam var full av handling, full av kraft, som också räckte åt
-de andra.
+Dopo che dall'ospedale giunse la terribile notizia che si trattava effettivamente di meningite, i giorni e le settimane si susseguirono come in un incubo. Il malato non poteva ricevere visite, soltanto per telefono ci si poteva informare sulle sue condizioni. In casa, la signora Lisen Dunker non era mai veramente presente, benché facesse continuamente avanti e indietro tra le scale e le stanze. Aveva sempre avuto difficoltà a ricordarsi le cose, ma in quel periodo dimenticava tutto. Le due ragazze rimasero a casa in quarantena e Tilda, in cucina, si assicurava che i fattornini lasciassero le consegne a distanza di sicurezza dalla scala della cucina. Annika era assente, proprio come la madre. Non era la memoria a venirle meno, ma sembrava aver perso ogni industriosità. Quando una disgrazia si abbatte come un fulmine sulla famiglia più felice del mondo, tutto improvvisamente appare privo di significato. Solamente Kerstin era piena di spirito d'iniziativa, piena di forza, al punto che quest bastavano per tutte.
 
-Då den rödgråtna Annika satt ensam i skymningen inne i deras rum, kunde
-Kerstin komma in, lägga handen på hennes skuldra och stå så
-en lång stund alldeles tyst. Hon hade aldrig varit smeksam, Kerstin, och
-var det inte heller nu. Hon hade aldrig haft lätt för att finna vackra
-ord och hade det inte heller nu. Men hela hennes väsen utstrålade en
-seg, stillsam tapperhet, som drog upp de andra ur det formlösa.
+Då den rödgråtna Annika satt ensam i skymningen inne i deras rum, kunde Kerstin komma in, lägga handen på hennes skuldra och stå så en lång stund alldeles tyst. Hon hade aldrig varit smeksam, Kerstin, och var det inte heller nu. Hon hade aldrig haft lätt för att finna vackra ord och hade det inte heller nu. Men hela hennes väsen utstrålade en seg, stillsam tapperhet, som drog upp de andra ur det formlösa.
 
-En kväll, då fru Dunker och Annika båda befann sig i vardagsrummet -
-modern satt vid fönstret med händerna oroligt plockande i knät, dottern
-stod lutad mot väggen och följde med ögonen visarnas långsamma gång över
-den gamla moraklockans urtavla - kom Kerstin in med en bok i handen.
+En kväll, då fru Dunker och Annika båda befann sig i vardagsrummet - modern satt vid fönstret med händerna oroligt plockande i knät, dottern stod lutad mot väggen och följde med ögonen visarnas långsamma gång över den gamla moraklockans urtavla - kom Kerstin in med en bok i handen.
 
-\- Jag har hittat en sådan förtjusande bok, sade hon. Vet ni vad jag
-föreslår, nu när vi får hålla oss hemma om kvällarna? Jo, att en av oss
-läser högt, medan de andra handarbetar.
+\- Jag har hittat en sådan förtjusande bok, sade hon. Vet ni vad jag föreslår, nu när vi får hålla oss hemma om kvällarna? Jo, att en av oss läser högt, medan de andra handarbetar.
 
-Fru Dunker smålog vemodigt, men för att inte göra Kerstin ledsen
-samtyckte man. Kerstin började läsa själv. Hon hade ett jämnt och
-redbart sätt att läsa, och boken var i sig själv fängslande nog. De
-andra hörde på över sina handarbeten, i början förstrött, sedan
-intresserade.
+Fru Dunker smålog vemodigt, men för att inte göra Kerstin ledsen samtyckte man. Kerstin började läsa själv. Hon hade ett jämnt och redbart sätt att läsa, och boken var i sig själv fängslande nog. De andra hörde på över sina handarbeten, i början förstrött, sedan intresserade.
 
-\- Jag är så trött i halsen i dag, förklarade Kerstin en kväll, sedan
-hon läst en stund. Nu
-kan du fortsätta ett tag, Annika. Jag måste för resten stoppa ett par
-strumpor.
+\- Jag är så trött i halsen i dag, förklarade Kerstin en kväll, sedan hon läst en stund. Nu kan du fortsätta ett tag, Annika. Jag måste för resten stoppa ett par strumpor.
 
-Annika tog vid. Hon var för otålig i sin läsning, flög över raderna,
-stakade sig, stammade och läste fel. Till slut blev det för mycket för
-fru Dunker. Hon hade i sin ungdom gått i Dramatens elevskola och visste,
-hur man egentligen borde behandla svenska språket.
+Annika tog vid. Hon var för otålig i sin läsning, flög över raderna, stakade sig, stammade och läste fel. Till slut blev det för mycket för fru Dunker. Hon hade i sin ungdom gått i Dramatens elevskola och visste, hur man egentligen borde behandla svenska språket.
 
-\- Du slarvar, Annika, sade hon. Ge mig boken, så får du fortsätta med
-din välsignade jumper.
+\- Du slarvar, Annika, sade hon. Ge mig boken, så får du fortsätta med din välsignade jumper.
 
-Och de båda flickorna lyssnade med uppriktigaste beundran och allt
-livligare intresse till fru Dunkers dramatiska sätt att föredra de
-laddade samtalen. Då klockan slog läggdags och man lade bort boken,
-lyste två skära rosor på den gamla damens kinder och hennes ögon hade
-fått glans.
+Och de båda flickorna lyssnade med uppriktigaste beundran och allt livligare intresse till fru Dunkers dramatiska sätt att föredra de laddade samtalen. Då klockan slog läggdags och man lade bort boken, lyste två skära rosor på den gamla damens kinder och hennes ögon hade fått glans.
 
-\- Jag riktigt skäms, sade hon, men jag har faktiskt haft ett sådant
-nöje av det! Lova att jag får läsa en bit i morgon också!
+\- Jag riktigt skäms, sade hon, men jag har faktiskt haft ett sådant nöje av det! Lova att jag får läsa en bit i morgon också!
 
-\- Ja, om jag får laga dina nattlinnen i stället! sade Kerstin. Och det
-fick hon.
+\- Ja, om jag får laga dina nattlinnen i stället! sade Kerstin. Och det fick hon.
 
-Så kom fru Dunker en morgon in till sina döttrar, som i vardagsrummet
-väntade på den dagliga rapporten från sjukhuset.
+Så kom fru Dunker en morgon in till sina döttrar, som i vardagsrummet väntade på den dagliga rapporten från sjukhuset.
 
 \- De - de säger, att han är utom all fara nu, sade hon tonlöst.
 
