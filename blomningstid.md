@@ -1,7 +1,7 @@
 ---
 title: Blomningstid
 author: Karin Boye
-\---
+---
 
     . 
 Hennes ögon vilade på de två, som satt ett litet stycke därifrån i lampans vita ljuskrets, modern med sin stickning, dottern med sitt skissblock. Svårt att säga, vad som gjorde det stora, låga rummet så förtjusande. Kanske de många trevliga vrårna - kanske den kultiverade och personliga stilen över minsta småsak - kanske också den lugna och varma gladlynthet, som strömmade ut från de båda där vid sitt arbete.

@@ -2,7 +2,7 @@
 title: Fioritura
 author: Karin Boye
 translator: Arianna Masciolini
-\---
+---
 
 Come a voler godersi al massimo gli ultimi minuti della sua permanenza nel piú piacevole dei salotti, la signora Ridell si raggomitolò ancora di piú sulla grande poltrona davanti al camino, dove le mele avevano appena finito di arrostirsi sul fuoco. I suoi occhi si posarono sulle due donne, madre e figlia, sedute a poca distanza al chiarore della lampada, la prima con il suo lavoro a maglia, la seconda con il blocco da disegno. Cosa rendesse così piacevole la stanza, ampia e bassa, era difficile a dirsi. Forse i tanti angoletti così gradevoli - forse lo stile curato e personale di ogni minimo dettaglio - forse anche la calma, calda serenità che emanava dalle due, intente al loro lavoro.
 
