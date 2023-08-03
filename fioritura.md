@@ -128,27 +128,27 @@ Una mattina, la signora Dunker raggiunse le figlie in salotto, dove aspettavano 
 
 \- Dicono - dicono che è fuori pericolo, disse sottovoce.
 
-\- Mamma! skrek Annika till med fasa i rösten. De hade aldrig talat om saken, hon och Annika. Ännu mindre hade läkaren sagt något åt det hållet. Men båda hade tydligen ändå haft klart för sig, att hjärnhinneinflammation brukade sluta med döden - eller sinnessjukdom. Fru Dunker hade dagar och nätter igenom hållit en förfärlig tanke på avstånd, en som trängde sig på men som inte fick tänkas till slut: "Vilket skulle du helst vilja...?"
+\- Mamma! strillò Annika con l'orrore nella voce. Non ne avevano mai parlato apertamente, lei ed Annika, né tantomeno il medico. Ma entrambe sapevano bene che la meningite si concludeva solitamente o con la morte, o con la pazzia. In quei giorni e quelle notti, la signora Dunker aveva cercato di tenere a bada un pensiero terribile, che però s'insinuava alla fine non poteva essere pensato: "Quale delle due cose preferiresti...?"
 
-Då Annika skrek till, hade Lisen Dunker riktat sina ögon mot Kerstin, i en vild förhoppning att åtminstone inte hon skulle förstå det hotfulla glädjebudskapet. Men Kerstins min sade, att också hon visste. Ett snabbt, dödligt allvar gick som ett ryck över hennes unga ansikte och var borta igen. Ingen sade något, och tystnaden i det soliga rummet var tryckande, själva moraklockans ticktack var fullt av skrämsel, där den mätte den korta fristen mellan dem och framtiden.
+Al grido di Annika, Lisen Dunker aveva rivolto lo sguardo verso Kerstin, nell'assurda speranza che almeno lei non comprendesse quanto minacciosa la bella notizia in realtà non fosse. Ma il volto di Kerstin indicava che anche lei sapeva. Per un istante, un'espressione tremendamente grave le si disegnò sul volto, ma subito dopo scomparve. Nessuna disse nulla, ed il silenzio nella stanza assolata era opprimente, persino il ticchettio dell'orologio, che misurava il breve tempo che le separava dal futuro, era pieno di angoscia.
 
-Det första som sades kom från Kerstin, med hennes lugna jämna röst:
+La prima a parlare fu Kerstin, che disse con voce calma e ferma:
 
-\- Sa de något om när han skulle få komma hem?
+\- Hanno detto niente su quando potrà tornare a casa?
 
-\- Nej, svarade modern kort, och hon kunde inte hjälpa, att hon tyckte Kerstin var hjärtlös. Vem kunde veta, om han alls skulle komma hem mer, trots att han var räddad till livet? Och om han kom - hur skulle det bli?
+\- No, rispose la madre sbrigativamente, e non poté fare a meno di pensare che Kerstin era senza cuore. Chissà se avrebbe mai potuto tornare a casa, pur avendo salva la vita? E se fosse tornato, come sarebbe stato?
 
-Första gången de besökte honom, var det hon och Kerstin som reste in. Annika vågade inte. Ute i korridoren grep fru Dunker sin dotter i armen och sade med kvävd röst:
+La prima volta che andarono a trovarlo, furono solo lei e Kerstin a raggiungerlo. Annika non osava. Ancora nel corridoio, la signora Dunker prese la figlia per il braccio e, con voce soffocata, disse:
 
-\- Gå in först, Kerstin. Jag kan inte. Jag vet ju inte...
+\- Entra prima tu, Kerstin. Io non ce la faccio. Non so se...
 
-Dotterns långa smärta gestalt dök in genom sjukrumsdörren, medan Lisen Dunker sjönk ner på en bänk, utan en tanke i sin hjärna, utan att se och utan att höra. Men bara en kort stund efteråt stod Kerstin åter bredvid henne, strålande över hela ansiktet, fastän tårarna strömmade över kinderna.
+Quando la figura alta e snella della figlia attraversò la porta della stanza d'ospedale, Lisen Dunker si accasciò su una panca con la testa vuota. Non vedeva e non sentiva. Ma poco dopo, Kerstin tornò da lei, col volto raggiante, nonstante lacrime le scendessero sulle guance.
 
-\- Du kan lugnt gå in, sade hon. Han är alldeles som vanligt, fast förfärligt matt. Du får inte vara inne länge.
+\- Puoi entrare tranquilla, disse. È quello di sempre, anche se è tremendamente stanco. Non potrai restare lì a lungo.
 
-Doktorn bekräftade, att Georg Dunker hade gått igenom den hemska sjukdomen utan annat men än en lätt lomhördhet, som sannolikt också skulle ge med sig så småningom. Så ovanlig som familjen hade föreställt sig var denna lyckliga utgång tydligen inte.
+Anche il medico confermò, che Georg Dunker aveva superato la terribile malattia con nient'altro che una lieve sordità, che era peraltro probabile si sarebbe pian piano risolta. Un tale esito favorevole, evidentemente, non era tanto insolito quanto i familiari si immaginavano.
 
-Men den kvällen bröt Kerstins styrka samman för första gången. Hon fick ett våldsamt gråtanfall, och det var Annika, som nu fick trösta och vara tillflykt. Liksom de romerska diktatorerna nedlade Kerstin Dunker sitt kortvariga välde, så fort farans tid var över.
+Quella sera, però Kerstin crollò per la prima volta. Ebbe una violenta crisi di pianto, e fu Annika a doverla consolare e offrirle rifugio. Come accadeva ai dittatori romani, il regno di Kerstin Dunker finì non appena passato il pericolo.
 
 En vacker sommarkväll åtskilliga månader senare var familjen samlad i trädgården tillsammans med den trogna grannen fru Ridell. Borta vid knuten stod Georg Dunker, försjunken i sin vackra blommande delphinium, och man passade på att förundra sig över hans spänstighet. Så gled samtalet, som så lätt hände, in på de förfärliga veckorna i våras.
 
