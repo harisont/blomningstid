@@ -150,14 +150,14 @@ Anche il medico confermò, che Georg Dunker aveva superato la terribile malattia
 
 Quella sera, però Kerstin crollò per la prima volta. Ebbe una violenta crisi di pianto, e fu Annika a doverla consolare e offrirle rifugio. Come accadeva ai dittatori romani, il regno di Kerstin Dunker finì non appena passato il pericolo.
 
-En vacker sommarkväll åtskilliga månader senare var familjen samlad i trädgården tillsammans med den trogna grannen fru Ridell. Borta vid knuten stod Georg Dunker, försjunken i sin vackra blommande delphinium, och man passade på att förundra sig över hans spänstighet. Så gled samtalet, som så lätt hände, in på de förfärliga veckorna i våras.
+Una bella sera d'estate qualche mese dopo, la famiglia si era riunita nel giardino assieme alla fidata vicina, la signora Ridell. Georg Dunker se ne stava in un angolo, immerso il suo splendido delphinium in fiore. Le donne non poterono fare a meno di commentare la sua buona ripresa. E così, come accadeva spesso, la conversazione tornò sulle terribili settimane di quella primavera.
 
-\- Och du, Kerstin, sade fru Ridell, du som var så otroligt modig och duktig, har jag hört - trodde du verkligen hela tiden, att det skulle gå så bra som det gick?
+\- E tu, Kerstin, disse la signora Ridell, sei stata così incredibilmente forte e coraggiosa, mi hanno detto - eri davvero convinta sin dall'inizio che le cose sarebbero andate a finire così bene come poi sono andate?
 
-\- Det vet jag inte, sade Kerstin förlägen. Nej, det trodde jag nog inte alls egentligen. För resten vet jag inte vad jag trodde. Det var ju inget att tro, man kunde ändå inget göra. Annat än gå tvärsigenom.
+\- Non so, rispose Kerstin imbarazzata. No, niente affatto, in realtà. Del resto non so bene cosa mi passasse per la testa. C'era ben poco da pensare, non c'era ninte che potessimo fare. A parte andare avanti.
 
-\- Ja, sade Lisen Dunker och smålog mot fru Ridell, det finns så underliga - plantor i Vår Herres hage. De vanliga sorterna, som är du och jag och många andra, de behöver sol och värme, om de ska slå ut. Men så finns där andra, som har bra nog mycket mer komplicerade fordringar för att kunna blomma.
+\- Già, fece Lisen Dunker rivolgendo un sorriso alla signora Ridell, ci sono piante così strane nel giardino di Nostro Signore. Le più comuni, come noi due e molti altri, hanno bisogno di luce e calore per prosperare. Ma ce ne sono altre, che hanno bisogno di condizioni ben più complesse per fiorire.
 
-Kerstin rodnade. Hennes korta glansperiod hade givit henne ett självförtroende, som hon förut saknat, och det hade tinat upp henne och gjort henne mer tillgänglig och meddelsam. Förr i världen skulle hon då aldrig kunnat svara så som hon nu gjorde:
+Kerstin arrossì. Il suo breve momento di gloria le aveva dato una fiducia in sè stessa che prima le mancava, l'aveva resa piú sciolta, piú disponibile e comunicativa. Prima non avrebbe mai risposto come fece allora:
 
-\- Ja - nu vet jag åtminstone, att jag vill bli något *påfrestande.* Inte vet jag riktigt vad, det klarnar kanske så småningom - men det får i alla fall inte vara för lätt.
+\- Sì - ora so, per lo meno, che nella vita voglio fare qualcosa di  *impegnativo*. Non so bene cosa, forse lo capirò col tempo - ma nulla che sia troppo facile.
