@@ -5,7 +5,6 @@ translator: Arianna Masciolini
 ---
 
 Liksom för att riktigt tillgodogöra sig de sista minuterna av sitt besök i det trevligaste av alla vardagsrum kröp fru Ridell ihop ännu mer i sin stora öronlappsfåtölj framför den öppna spiseln, där man nyss hade stekt äpplen framför elden. Hennes ögon vilade på de två, som satt ett litet stycke därifrån i lampans vita ljuskrets, modern med sin stickning, dottern med sitt skissblock. Svårt att säga, vad som gjorde det stora, låga rummet så förtjusande. Kanske de många trevliga vrårna - kanske den kultiverade och personliga stilen över minsta småsak - kanske också den lugna och varma gladlynthet, som strömmade ut från de båda där vid sitt arbete. 
-Hennes ögon vilade på de två, som satt ett litet stycke därifrån i lampans vita ljuskrets, modern med sin stickning, dottern med sitt skissblock. Svårt att säga, vad som gjorde det stora, låga rummet så förtjusande. Kanske de många trevliga vrårna - kanske den kultiverade och personliga stilen över minsta småsak - kanske också den lugna och varma gladlynthet, som strömmade ut från de båda där vid sitt arbete.
 
 \- Kära Lisen, mumlade hon sömnigt ur sin öronlappsfåtölj, jag har det så bra, så jag vill rakt inte ut i regnet och blötan. Jag vill stanna här hos er. Ni är världens lyckligaste familj, vet ni det?
 
