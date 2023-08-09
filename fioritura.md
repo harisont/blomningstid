@@ -4,45 +4,45 @@ author: Karin Boye
 translator: Arianna Masciolini
 ---
 
-Come a voler godersi al massimo gli ultimi minuti della sua permanenza nel piú piacevole dei salotti, la signora Ridell si raggomitolò ancora di piú sulla grande poltrona davanti al camino, dove le mele avevano appena finito di arrostirsi sul fuoco. I suoi occhi si posarono sulle due donne, madre e figlia, sedute a poca distanza al chiarore della lampada, la prima con il suo lavoro a maglia, la seconda con il blocco da disegno. Cosa rendesse così piacevole la stanza, ampia e bassa, era difficile a dirsi. Forse i tanti angoletti così gradevoli - forse lo stile curato e personale di ogni minimo dettaglio - forse anche la calma, calda serenità che emanava dalle due, intente al loro lavoro.
+Come a volersi godere al massimo gli ultimi minuti della sua permanenza nel piú piacevole dei salotti, la signora Ridell si raggomitolò ancora di piú sulla grande poltrona davanti al camino, dove le mele avevano appena finito di arrostirsi sul fuoco. I suoi occhi si posarono sulle due donne, madre e figlia, sedute poco distante al chiarore della lampada, la prima con il suo lavoro a maglia, la seconda con l'album da disegno. Cosa esattamente rendesse così piacevole la stanza, ampia e bassa, era difficile a dirsi. Forse i tanti angoletti così gradevoli, forse lo stile curato e personale di ogni minimo dettaglio, forse anche la calma, calda serenità che emanava dalle due, intente alle loro attività.
 
-\- Lisen cara, mormorò assonnata dalla sua poltrona, si sta così bene che non ho nessuna voglia di uscirmene alla pioggia e al freddo. Voglio restare qui con voi. Siete la famiglia più felice del mondo, lo sapete?
+\- Lisen cara, mormorò sonnolenta dalla sua poltrona, si sta così bene che non ho nessuna voglia di uscirmene fuori alla pioggia e al freddo. Voglio restare qui da voi. La vostra dev'essere la famiglia più felice al mondo.
 
-\- Può darsi, disse la signora Lisen sorridendo al suo lavoro a maglia. Tocchiamo ferro, peraltro. Forse non dovremmo passarcela così bene. Non ce lo meritiamo.
+\- Può darsi - disse la signora Lisen guardando il suo lavoro a maglia con un sorriso. Tocchiamo ferro. Forse non dovrei passarmela così bene. Non me lo merito.
 
-\- Ma che dici, mamma! disse Annika in tono di rimprovero alzando gli occhi dall'album da disegno. Chi se lo merita se non tu, che sei la persona piú buona che ci sia!
+\- Ma che dici, mamma! disse Annika in tono di rimprovero alzando gli occhi dall'album da disegno. Chi se lo merita se non tu, che sei la piú gentile che ci sia!
 
-\- Uff! fece la signora Ridell facendo capolino dal suo cantuccio. Sentite che vento che tira, e come piove! Ed io che devo uscire giusto adesso!
+\- Uff! fece la signora Ridell facendo capolino dal suo cantuccio. Sentite che vento che tira, e come piove! Ed io che devo uscire proprio adesso!
 
-Proprio in quel momento una folata di vento colpì la finestra, che sbatté rumorosamente. Fuori era calata l'oscurità della sera e poche lanterne illuminavano le strade senza fondo del villaggio. Tutte rabbrividirono al suono della pioggia sul vetro, e quel brivido accrebbe ulteriormente la sensazione di tepore e di benessere che provavano. Come i gerani al di qua dei vetri inondati erano al riparo, protette da ogni male.
+Proprio in quel momento, una folata di vento colpì la finestra, che sbatté rumorosamente. Fuori era calata l'oscurità della sera e poche lanterne illuminavano le strade del villaggio, di cui non si riusciva a scorgere la fine. Le tre le donne rabbrividirono al suono della pioggia sul vetro, e quel brivido accrebbe ulteriormente la sensazione di tepore e di benessere che provavano. Come i gerani al di qua dei vetri bagnati, erano al riparo, protette da ogni male.
 
-Dal piano di sopra giunse un leggero scricchiolio. La signora Ridell ascoltava: erano passi che facevano avanti e indietro, avanti e indietro. Doveva essere la figlia minore, Kerstin, che si era ritirata nella sua stanza subito dopo il tè.
+Dal piano di sopra giunse un leggero scricchiolio. La signora Ridell ascoltava: erano passi che facevano avanti e indietro, avanti e indietro. Doveva trattarsi della figlia minore, Kerstin, che si era ritirata nella sua stanza subito dopo il tè.
 
-\- Com'è inquieta, lá sopra! disse la signora Ridell.
+\- Com'è inquieta lei, lá sopra! disse la signora Ridell.
 
-\- Sì - lo è davvero, disse Lisen Dunker dopo una breve pausa. Kerstin é uno spirito tormentato. Forse la giovinezza - passerà.
+\- Sì, proprio inquieta, fece Lisen Dunker dopo una breve pausa. Kerstin é uno spirito tormentato. Sarà la giovinezza - passerà.
 
-\- Ma mamma - sono mai stata così, io? obiettò Annika. Non vorrai venirmi a dire che non sono stata anch'io giovane come Kerstin?
+\- Va bene, mamma, ma sono mai stata così, io? obiettò Annika. Non vorrai venirmi a dire che non sono stata giovane proprio come Kerstin?
 
-La sola risposta della signora Dunkers fu dapprima un sorriso, poi, quando il sorriso si spense, un sospiro. La signora Ridell si alzò.
+Per tutta risposta, la signora Dunker sorrise. Poi, quando il sorriso si spense, sospirò. La signora Ridell si alzò.
 
-\- Salutatemi tanto Georg! disse. Pover'uomo, la sua visita sta andando per le lunghe.
+\- Salutatemi tanto Georg! disse. Mi dispiace che la sua riunione stia andando tanto per le lunghe.
 
-Nello stesso preciso istante risuonarono dei passi al primo piano e uno strusciare sullo zerbino all'esterno. Poco dopo si uní la chiave nella serratura ed entrò Georg Dunker, zuppo di pioggia e contento. Grosse gocce di pioggia intrappolate nelle sue sopracciglia grigie scintillavano alla luce della lampada ed il suo volto, arrossito dal vento sferzante, s'illuminò non appena il piacevole tepore dell'interno lo raggiunse. Si sfilò il soprabito bagnato ed entrò come si entra ad una festa. La signora Ridell avrebbe potuto pensare che fosse la sua presenza a rendere la serata così allegra. Non lo fece, conoscendo la famiglia - ma di troppo, qui, non ci si sentiva mai e in nessun altro luogo era così facile sentirsi a casa. Doveva pur restare ancora un po' e condividere la gioia che Lisens ed Annika provavano nel veder tornare a casa marito e padre.
+Nello stesso preciso istante, si sentirono dei passi provenienti dal primo piano e uno strusciare di piedi sullo zerbino. Poco dopo si udí la chiave girare nella serratura Georg Dunker fece capolino, bagnato fradicio ma allegro. Grosse gocce di pioggia intrappolate nelle sue sopracciglia grigie scintillavano alla luce della lampada ed il suo volto, arrossato dal vento sferzante, s'illuminò non appena il piacevole tepore dell'interno lo raggiunse. Si sfilò il soprabito bagnato ed entrò come si entra ad una festa. La signora Ridell avrebbe potuto pensare che fosse la sua presenza a rendere la serata così lieta. ma conosceva la famiglia e non lo fece. In quella casa, ad ogni modo, di troppo non ci si sentiva mai e in nessun altro luogo era così facile sentirsi a casa. Doveva pur restare ancora un pochino e condividere la gioia che Lisen ed Annika provavano nel veder tornare a casa marito e padre.
 
-Poco dopo, la scala scricchiolò di lenti passi leggeri. Qualcuno, cercando evidentemente di fare il meno rumore possibile, stava frugando tra i cappotti nell'ingresso buio. Proprio perché quel qualcuno era così silenzioso e attento, l'intera famiglia si mise in ascolto, e Georg Dunker chiese:
+Poco dopo, qualcuno scese le scale in punta di piedi e si mise a frugare tra i cappotti nell'ingresso, cercando chiaramente di fare il minor rumore possibile. Proprio perché quel qualcuno era così silenzioso e attento a non farsi notare, l'intera famiglia si mise in ascolto, e Georg Dunker chiese:
 
 \- Stai uscendo, Kerstin?
 
-\- Sì, pensavo di fare due passi fuori, rispose una fredda, quasi scostante voce di fanciulla.
+\- Sì, pensavo di fare due passi fuori, rispose fredda e quasi scostante una voce di ragazza.
 
-Nessuno ebbe nulla da opporre, ma ci fu uno scambio di sguardi. Parve che dall'ingresso, dove la ragazza se ne stava silenziosa ed invisibile, li avesse raggiunti un colpo di vento freddo. "Un angelo attraversa la stanza", pensò la signora Ridell, ma subito dovette ribattere a sé stessa che, se quello era un angelo, gli angeli erano creature alquanto inquietanti.
+Nessuno ebbe nulla da obbiettare, ma tra i familiari ci fu uno scambio di sguardi. Parve che dall'ingresso, dove la ragazza se ne stava in silenzio, nascosta alla loro vista, li avesse raggiunti una folata di vento freddo. "Un angelo che attraversa la stanza", pensò la signora Ridell, ma subito dovette ribattere a sé stessa che, se quello era un angelo, gli angeli erano creature alquanto inquietanti.
 
 Quando Kerstin tornò a casa, Annika si era giá coricata nella loro camera da letto.
 
-\- Accendi pure la candela, tanto non mi sono ancora addormentata, disse quest'ultima mentre la sorella cercava di spogliarsi al buio. Kerstin l'accese. Il suo viso era rosso fuoco dopo la passeggiata nel tempo inclemente.
+\- Accendi pure la candela, tanto non mi sono ancora addormentata, disse mentre la sorella cercava di spogliarsi al buio. Kerstin l'accese. Il suo viso era rosso fuoco dopo la passeggiata nel tempo inclemente.
 
-\- Sai, certe volte é così bello camminare nella pioggia e il vento, disse come scusandosi. Ci si calma un poco. Magari si ha bisogno di qualcuno con cui litigare.
+\- Sai, certe volte può essere bello camminare nel vento sotto la pioggia, disse con fare di scusa. È un modo per calmarsi un poco. Magari si ha bisogno di qualcuno con cui litigare.
 
 Annika, distesa, socchiuse gli occhi verso la luce.
 
