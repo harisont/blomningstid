@@ -1,5 +1,7 @@
 ---
 title: Blomningstid
+original title: Blomningstid
+source: Ur funktion
 author: Karin Boye
 translator: Arianna Masciolini
 ---
