@@ -6,17 +6,13 @@ author: Karin Boye
 translator: Arianna Masciolini
 ---
 
-\centering
 __Traduzione__: Arianna Masciolini
 
-__Titolo originale__: _Blomningstid_, dalla raccolta di racconti _Ur funktion_ (Stockholm, Albert Bonniers förlag, 1940).
+__Titolo originale__: _Blomningstid_, dalla raccolta di racconti _Ur funktion_ (Stoccolma, Albert Bonniers förlag, 1940).
 
 __Copertina__: Carl Larsson
 
 ---
-
-\newpage
-
 
 Come a volersi godere al massimo gli ultimi minuti della sua permanenza nel più piacevole dei salotti, la signora Ridell si raggomitolò ancora di più sulla grande poltrona davanti al camino, dove le mele avevano appena finito di arrostirsi sul fuoco. I suoi occhi si posarono sulle due donne, madre e figlia, sedute poco distante al chiarore della lampada, la prima con il suo lavoro a maglia, la seconda con l'album da disegno. Cosa esattamente rendesse così piacevole la stanza, ampia e bassa, era difficile a dirsi. Forse i tanti angoletti così gradevoli, forse lo stile curato e personale di ogni minimo dettaglio, forse anche la calma, calda serenità che emanava dalle due donne, intente alle loro attività.
 
